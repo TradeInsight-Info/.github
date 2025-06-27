@@ -17,4 +17,4 @@
 
 - [Nancy Pelosi](https://tradeinsight.info/trader/congress/1d0c4282-521f-5169-860c-1a56d47937cd) House member
 - [Mark Green](https://tradeinsight.info/trader/congress/c63fd4ab-a041-5c7f-8806-6d0e849bc94d) House member
-- [Pierce Brock Jeffrey](https://tradeinsight.info/trade/insider) Director of Bit Digital purchased of 500,000 BTBT at $2
+- [Pierce Brock Jeffrey](https://tradeinsight.info/trade/insider) Director of Bit Digital purchased of 500,000 BTBT at $2 on June 25, 2025.
